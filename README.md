@@ -719,7 +719,6 @@ Yes. And it had a name.
 
 The dramatic tension builds as Satan's own words become his greatest accusation, and his beautiful lies are stripped away to reveal the ugly truth. The courtroom atmosphere grows darker as his true nature is exposed, setting up the final confrontations to come.
 
-—----------------------------------------------------------------------------------------------------------------------
 
 The second day of the trial opened with an electric tension that seemed to make the crystalline walls of the cosmic courtroom hum with anticipation. Advocate Serpentius had spent the recess preparing what legal scholars would later call either the most brilliant defense strategy in the history of jurisprudence—or the most audacious act of hubris ever attempted.
 
