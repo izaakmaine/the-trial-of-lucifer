@@ -585,8 +585,6 @@ The ending sets up perfect tension for the next installment, with Satan's confid
 
 # 
 
-—----------------------------------------------------------------------------------------------------------------------------
-
 The Cosmic Courtroom materialized from the intersection of eternity and time, its crystalline walls reflecting every moment that had ever been or would ever be. Light emanated not from any source but from the very essence of Truth itself, casting no shadows because here, in the presence of perfect Justice, nothing could be hidden.
 
 Judge Yahweh occupied the bench—not seated, for the concept of physical position was inadequate, but *present* in a way that made every atom of creation acknowledge its Creator. The gavel beside Him was forged from the same Word that had spoken galaxies into existence.
@@ -913,7 +911,7 @@ And in the defendant's corner, perhaps for the first time since his rebellion be
 
 The tension has built to its maximum point—Satan stands completely exposed, his own words and choices having condemned him more thoroughly than any prosecutor could. All that remains is the final verdict and sentencing.
 
-—----------------------------------------------------------------------------------------------------------------------------
+
 
 The third day of the cosmic trial opened with a palpable shift in the atmosphere of the courtroom. Where before there had been tension and anticipation, now there was something deeper—an approaching inevitability that seemed to make the very foundations of reality hold their breath. The crystalline walls pulsed with a different quality of light, as if creation itself was preparing for the ultimate revelation.
 
