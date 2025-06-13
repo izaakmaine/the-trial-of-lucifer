@@ -1,5 +1,7 @@
 # Background
 
+Download audio conversation [here](https://drive.google.com/file/d/1d2UPvnC6cPXlfHhxJUbXL4vbG_zRBKDs/view?usp=sharing)
+
 This is a comprehensive list of 50 major biblical events involving Satan, spanning from Genesis to Revelation. The list progresses chronologically and includes specific Bible verse references along with brief context for each event.
 
 The events show Satan's various roles throughout Scripture:
