@@ -1,5 +1,7 @@
 # Background
 
+Feel free to create a compelling YouTube video of The Trial of Lucifer. Notable videos will be listed here. Email us the link.
+
 Listen/download audio conversation [here](https://drive.google.com/file/d/1d2UPvnC6cPXlfHhxJUbXL4vbG_zRBKDs/view?usp=sharing) or read at [Medium](https://medium.com/@izaakmaine/the-trial-of-lucifer-900044a370cd)
 
 This is a comprehensive list of 50 major biblical events involving Satan, spanning from Genesis to Revelation. The list progresses chronologically and includes specific Bible verse references along with brief context for each event.
